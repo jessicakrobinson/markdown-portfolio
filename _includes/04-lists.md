@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Be
+2. Kind
+3. To
+  * Yourself
